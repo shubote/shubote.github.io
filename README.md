@@ -1,0 +1,1 @@
+# shubote.github.io
